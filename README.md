@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **EVs, Embedded systems, Machine Learning**
 
-- 📫 How to reach me **preetkd2222@gmail.com**
+- 📫 How to reach me **preetkamalnayanpandit@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1pseMLz9NbvMzEcn3_tEL0KJUKGlmVDaH/view?usp=drive_link](https://drive.google.com/file/d/1pseMLz9NbvMzEcn3_tEL0KJUKGlmVDaH/view?usp=drive_link)
 
